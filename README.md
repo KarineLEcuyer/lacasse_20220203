@@ -1,1 +1,3 @@
-# lacasse_20220203
+# Théa Lacasse
+
+Je suis étudiante en Technique d'Intégration Multimédia (TIM) et c'est ma deuxième session de cégep....
